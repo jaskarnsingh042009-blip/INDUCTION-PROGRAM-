@@ -1,2 +1,4 @@
 # INDUCTION-PROGRAM-
-Jaskaran Singh Branch M.E.(MECHANICAL ENGINEERING)
+# Day - 1
+## 30th july 
+
